@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @IloSigri
-- 👀 I’m interested in BRRRR
-- 🌱 I’m currently learning BRRRR
-- 💞️ I’m looking to collaborate on BRRR
-- 📫 How to reach me BRRRR
+- 👋 Hi, I’m @IloSigr
+🦺🦺🦺🦺🦺
